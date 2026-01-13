@@ -15,7 +15,7 @@ I don't remember when exactly I decided to go for it or what was going through m
 
 I do remember _some_ of what I was thinking. I was thinking that back in 2021, during lockdown, I was able to do 5 minutes of plank — was I still able to do that? I didn't know. But instead of just testing it out on the spot, I decided to build my way up to it. Make it more likely to succeed. 
 
-So the first real milestone was to reach 5 minutes. I wasn't really sure what I would do after that, but that goal was clear. And that goal was indeed reached — sometime in March if memory serves me right.* I know for sure it was a Monday. And that's because I decided to turn the whole week into a celebratory, 5-minute-plank week. It wasn't the product of much thought, it just felt like the right thing to do at the time. But the question remained: what happens from now onwards?
+So the first real milestone was to reach 5 minutes. I wasn't really sure what I would do after that, but that goal was clear. And that goal was indeed reached — sometime in March if memory serves me right.[^1] I know for sure it was a Monday. And that's because I decided to turn the whole week into a celebratory, 5-minute-plank week. It wasn't the product of much thought, it just felt like the right thing to do at the time. But the question remained: what happens from now onwards?
 
 One option was to stop. I had accomplished what I had practically set out to do, so it was a good time to stop if I wanted to. But I didn't want to. Now that I had proved to myself I could commit to a task like this every single day, I wanted to carry on. Yet I couldn't really convince myself to keep going at this pace — it didn't feel sustainable in the long run. Yes, I managed to plank for 5 minutes, but I didn't do it _easily_. I was putting a lot of effort into it, both mentally and physically. I would start to tremble a few minutes into the plank and pushing through that final minute was always so hard. My body had already risen up to meet my demands for more than two months straight — disregarding stress, bad moods, period cramps and anything else that stood in its way. But could I really keep asking so much from it? My gut told me I shouldn't.
 
@@ -38,8 +38,4 @@ A myriad of thoughts go through my mind as I look back on my year of plank. All 
 But I'll try to save these thoughts for later. For now, I'll go eat something and get ready for my last plank of the year. Wish me luck!
 
 
-<br>
-<br>
-<br>
-
-\* It didn't. It was February 24th 2025 (but I was right about the Monday part at least!)
+[^1]: It didn't. It was February 24th 2025 (but I was right about the Monday part at least!)
